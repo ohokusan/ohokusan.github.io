@@ -1,0 +1,1 @@
+# ohokusan.github.io
